@@ -18,5 +18,8 @@ https://github.com/vamsijavvadi7/TA
 
 https://youtu.be/zJ0dDDLPDPc?si=HhCXQY0lCd1wgAVk
 
+# Basic Projects
+
+https://youtube.com/@vamsijavvadi8352?si=SxYk92ghG2Uhc-Sx
 
 
